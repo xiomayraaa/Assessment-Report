@@ -2,7 +2,7 @@
 
 **Author:** Litzy Granda
 
-<sub>📄View the Full Report (PDF)</sub>
+📄View the Full Report (PDF)
 
 ## Overview:
 
